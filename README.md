@@ -1,4 +1,4 @@
-## 안녕하세요, 저는 이동규입니다 👋
+## 안녕하세요, 저는 이동규입니다!! 👋
 
 <div align=center>
 	
@@ -8,13 +8,19 @@
 
 
 
+✨ 21 years old 
+
+🖼️ MBTI: ISFJ
+
 🔭 I’m currently studying on ChungAng University
 
 🌱 I’m currently learning ART and TECHNOLOGY
 
 👯 I like design and photography
 
-😊
+😊 Technology Stack: Maya, Python, Adobe Photoshop, Adobe Illustrator, SketchUp, Drawing, Drone  etc.
+
+🎈 Project: Visualization of Sound(예술공학개론), Making VR content, Stop Motion
 
 📫 e-mail: dongdong2702@naver.com
 
