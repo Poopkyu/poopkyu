@@ -19,7 +19,8 @@
 ⚡ Call: 010-9143-6883
 
 We need your ideas and capabilities for a successful team project. We can create even greater results! Feel free to share your opinions, and any roles or requests you need are always welcome. Let's work together to produce great results! 😊
-	
+
+[![Instagram Badge](https://img.shields.io/badge/-Instagram-E4405F?logo=instagram&logoColor=white&style=flat-square)](https://www.instagram.com/_dlehdrb_)
 	
  
 	
