@@ -12,11 +12,11 @@
 
 🖼️ MBTI: ISFJ
 
-🔭 I’m currently studying on ChungAng University.
+🌈 I’m currently studying on Chung-Ang University.
 
-🌱 I’m currently learning ART and TECHNOLOGY.
+🕹️ I’m currently learning ART and TECHNOLOGY.
 
-👯 I like design and photography.
+🗺️ I like design and photography.
 
 😊 Technology Stack: Maya, Python, Adobe Photoshop, Adobe Illustrator, SketchUp, Drawing, Drone  etc.
 
