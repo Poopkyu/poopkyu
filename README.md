@@ -14,6 +14,8 @@
 
 👯 I like design and photography
 
+😊
+
 📫 e-mail: dongdong2702@naver.com
 
 ⚡ Call: 010-9143-6883
