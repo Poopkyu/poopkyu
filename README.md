@@ -24,8 +24,6 @@
 
 📫 e-mail: dongdong2702@naver.com
 
-⚡ Call: 010-9143-6883
-
 🎠 Goals: Planning creative projects and increasing the ability to integrate art and technology / Create Media Art
 
 We need your ideas and capabilities for a successful team project. We can create even greater results! Feel free to share your opinions, and any roles or requests you need are always welcome. Let's work together to produce great results! 😊
